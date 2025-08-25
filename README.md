@@ -40,7 +40,7 @@
 ---
 
 ## 📫 Let's Connect  
-- 🌐 [LinkedIn](https://www.linkedin.com/in/arunk1717/)  
+- 🌐 [LinkedIn](https://www.linkedin.com/in/arunky24/) 
 - 📧 Email: arunkyadav919@gmail.com  
 
 ---
